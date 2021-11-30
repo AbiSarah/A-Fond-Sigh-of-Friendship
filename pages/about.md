@@ -33,20 +33,22 @@ Having the extra two examples of friendship albums can show us the differences b
 Ann Eliza Hepburne Rooth's album tells a continuous story of her life. This exhibition is only showing a few examples of such gifts from friends or families or new Folk; some may even be entries of her own, which wasn't uncommon. It can give us a glimpse into what some of the culture was like in Niagara in the 19th century, and with contrast with the 20th century albums, showing the difference and similarities between the two centuries. 
 
 
-List of Images:
-1.The Attack
-2.The Defeat
-3.A Bird
-4.Eyes Which Never Close 
-5.In Memoriam
-6.The Boy and The Dog
-7.The Howling Dog
-8.The Pained Face Horse
-9.A Shaky Hand
-10.Bunny Ears
-11.Help 
-12.Marry Harry 
-13.Mrs Hill
-14.The Last Page
-15.The True Last Page
-16.
+List of Images from Brock Archives & Special Collections, Ann Eliza Hepburne Rooth Fonds, 1837-1897 RG 505:
+1. The Attack page 3
+2. The Defeat page 4
+3. A Bird page 32
+4. Eyes Which Never Close page 39
+5. In Memoriam page 50
+6. The Boy and The Dog page 93
+7. Two Birds page 97
+8. The Howling Dog page 120
+9. The Pained Face Horse page 129
+
+Leeder Family Repository:
+11. A Shaky Hand
+12. Bunny Ears
+13. Help 
+14. Marry Harry 
+15. Mrs Hill
+16. The Last Page
+17. The True Last Page
