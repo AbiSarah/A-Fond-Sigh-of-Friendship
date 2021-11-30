@@ -44,7 +44,7 @@ List of Images from Brock Archives & Special Collections, Ann Eliza Hepburne Roo
 8. The Howling Dog page 120
 9. The Pained Face Horse page 129
 
-Leeder Family Repository:
+List of Images from The Leeder Family Repository:
 11. A Shaky Hand
 12. Bunny Ears
 13. Help 
@@ -52,3 +52,6 @@ Leeder Family Repository:
 15. Mrs Hill
 16. The Last Page
 17. The True Last Page
+
+Please Note:
+The of the image names are not the true names, and are just a title given to them for organization.
