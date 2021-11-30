@@ -17,6 +17,7 @@ credits: true
 Friendship albums are something you may have not heard of; or have a different idea of what it may have been, when you hear the name. A friendship album,  may also be known as an amicorum album, or in the case of my family, autograph books. These were albums where people would have a combination of artwork, poems, literature, autograph, imagery, and collages, etc. The friendship album is made up of passages from different people, who may have been friends, family, or even someone new. Friendship albums were not a purely Western construct, it was global, and from our research dates back to the 1500s. The items that are in this exhibit are from Brock Archives & Special Collections and also from my family's reservatory.
 
 The second page of Ann Eliza Hepburne Rooth’s Friendship album, has a poem that describes this book very well:
+
 ''Dear book, wherein I often view the faces of the loved and true, with whom I've wiled sweet hours away, and held sweet converse by the way. 
 Where are the friends whose silent forms, enclosed are within thy bonds, have they all gone - I left to mourn? And wander on life's way alone. 
 Yes, some to heavenly homes have gone, their work on earth is finished and well done, and some are travelling yet in life's rough way. And hope bespeaks for all a happy meeting day. 
@@ -58,4 +59,4 @@ List of Images from The Leeder Family Repository:
 17. The True Last Page
 
 Please Note:
-The of the image names are not the true names, and are just a title given to them for organization.
+The of the image names are not the true names, and are just titles given to them for organization.
