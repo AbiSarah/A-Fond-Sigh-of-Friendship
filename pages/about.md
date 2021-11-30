@@ -34,19 +34,19 @@ Ann Eliza Hepburne Rooth's album tells a continuous story of her life. This exhi
 
 
 List of Images:
-1.
-2.
-3.
-4.
-5.
-6.
-7.
-8.
-9.
-10.
-11.
-12.
-13.
-14.
-15.
+1.The Attack
+2.The Defeat
+3.A Bird
+4.Eyes Which Never Close 
+5.In Memoriam
+6.The Boy and The Dog
+7.The Howling Dog
+8.The Pained Face Horse
+9.A Shaky Hand
+10.Bunny Ears
+11.Help 
+12.Marry Harry 
+13.Mrs Hill
+14.The Last Page
+15.The True Last Page
 16.
