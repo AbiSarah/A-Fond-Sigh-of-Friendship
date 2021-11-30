@@ -24,7 +24,7 @@ Ann Eliza Hepburne Rooth, the prior owner of the Friendship album currently in B
 
 Ann’s album can give us a glimpse into not only her history, her journey, but also a peek into niagara's history or visual culture; like what kinds of artists or writers were in there, even the unfamous, are still significant. 
 
-For the images added from my family's Repository who mostly resided in Chippewa from the 20th century; this is to add context and the trends of items in these albums. One album is my great-grandmother Mildred Hill's and my Grandma Frances Stitt Leeder's. Stitt with her last name,at the time when the book was made. 
+For the images added from my family's Repository who mostly resided in Chippewa from the 20th century; this is to add context and the trends of items in these albums. One album is my great-grandmother Mildred Hill's and my Grandma Frances Stitt Leeder's. Stitt with her last name, at the time when the book was made. 
 
 When looking through these friendship albums a connection can be made between the ones from the 20th century and the one in the 19th century. There are drawings, poetry, meaningful words from friends or family. Jokes that can be found in these albums too. These albums are a look into the history of Niagara, the types of people that lived there, and yes some of the entries in Ann's book weren't all from Niagara. It can also be used as an example of how someone from Niagara may have interacted with people of different cultures.
 
@@ -33,3 +33,20 @@ Having the extra two examples of friendship albums can show us the differences b
 Ann Eliza Hepburne Rooth's album tells a continuous story of her life. This exhibition is only showing a few examples of such gifts from friends or families or new Folk; some may even be entries of her own, which wasn't uncommon. It can give us a glimpse into what some of the culture was like in Niagara in the 19th century, and with contrast with the 20th century albums, showing the difference and similarities between the two centuries. 
 
 
+List of Images:
+1.
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+9.
+10.
+11.
+12.
+13.
+14.
+15.
+16.
