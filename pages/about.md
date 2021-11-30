@@ -63,12 +63,12 @@ The of the image names are not the true names, and are just titles given to them
 
 Citations
 
-  Zebuhr, Laura. “The Work of Friendship in Nineteenth-Century American Friendship Album Verses.” American literature 87, no. 3 (2015): 437.
+  (1)Zebuhr, Laura. “The Work of Friendship in Nineteenth-Century American Friendship Album Verses.” American literature 87, no. 3 (2015): 437.
   
-  Rooth, Ann Eliza Hepburne. Ann Eliza Hepburne Rooth Fonds, 1837-1897., 1837.
+  (2)Rooth, Ann Eliza Hepburne. Ann Eliza Hepburne Rooth Fonds, 1837-1897., 1837. 2.
   
-  “Friendship Albums Show Social Media Is Nothing New.” Times (London, England : 1788). London (UK): NI Syndication Limited, 2018.
+  (3)“Friendship Albums Show Social Media Is Nothing New.” Times (London, England : 1788). London (UK): NI Syndication Limited, 2018.
    
-  Rooth, Ann Eliza Hepburne. Ann Eliza Hepburne Rooth Fonds, 1837-1897., 1837. Described by Chantal Cameron.
+  (4)Rooth, Ann Eliza Hepburne. Ann Eliza Hepburne Rooth Fonds, 1837-1897., 1837. Described by Chantal Cameron.
   
-  Zebuhr, Laura. “The Work of Friendship in Nineteenth-Century American Friendship Album Verses.” American literature 87, no. 3 (2015): 437.
+  (5)Zebuhr, Laura. “The Work of Friendship in Nineteenth-Century American Friendship Album Verses.” American literature 87, no. 3 (2015): 437.
